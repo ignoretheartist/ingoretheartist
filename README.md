@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ingoretheartist
+- 👋 Hi, I’m @ignoretheartist
 - 👀 I’m interested in ... futuring our existence through light and sound
 - 🌱 I’m currently learning ... everything
 - 💞️ I’m looking to collaborate on ... anything related to DAI(ng)
